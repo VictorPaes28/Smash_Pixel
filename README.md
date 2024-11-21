@@ -25,7 +25,7 @@ Divirta-se jogando Smash Pixel com seus amigos!
 
 João Marcelo - jmtpm@cesar.school 📩
 
-Israel -  imdb@cesar.school 📩
+Israel -  imdn@cesar.school 📩
 
 Victor Paes - vplpc@cesar.school 📩
 
